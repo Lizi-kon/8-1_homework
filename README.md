@@ -1,2 +1,3 @@
-# 8-1_homework+ zaikin + eesmile
+# 8-1_homework+ zaikin + eesmile 
 Kirill ochen hochet 9
+Lizi - kon
